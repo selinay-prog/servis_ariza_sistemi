@@ -1,6 +1,3 @@
 //süeda tarafından deneme
 // selamlar
-HHIFHIFH
-KUDHUDDHUDJjjffjf
-CMCCMMCUIDUDDUJDJJMND
-DIJDJIDOD
+
