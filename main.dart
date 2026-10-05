@@ -1,0 +1,1 @@
+//süeda tarafından deneme
